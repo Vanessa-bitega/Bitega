@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Abewe
+- 👀 I’m interested in graphic design
+- 🌱 I’m currently learning sign language 
+- 💞️ I’m looking to collaborate on ...
